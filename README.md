@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @HardcoreFish
+- 👀 I’m interested in NFTs... yes, I know. But it's time to give it a try out.
+- 🌱 I’m currently learning many things in life.
+- 📫 How to reach me
+- Email: hardcorefish3@gmail.com
+- Nothing else... for now.
